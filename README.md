@@ -1,1 +1,0 @@
-# partemen.forta.co.id
